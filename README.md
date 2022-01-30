@@ -1,0 +1,1 @@
+# Hackintosh-Lenovo-ideapad-330-15ICH
